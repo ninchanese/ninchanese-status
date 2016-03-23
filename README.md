@@ -1,0 +1,1 @@
+Visit this site at https://ninchanese.github.io/ninchanese-status/
